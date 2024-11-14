@@ -1,7 +1,5 @@
 ## [LIVESTREAMS]~Belgium - Italy Live Streaming canale tv gratuito
 
-<!--
-
 UEFA Nations League heats up, the much-anticipated match between Belgium and Italy is just around the corner. Fans across the globe are eager to catch this exciting clash between two of Europe’s top footballing nations. Whether you're in Belgium, Italy, or anywhere else, here's everything you need to know about watching the match live.
 
 [CLICK HERE TO WATCH NOW](https://todayredeem.online/wcc)
